@@ -1,11 +1,16 @@
-　　　![](https://files.catbox.moe/4muijl.gif)
+　　　![](https://i.postimg.cc/hjjwrKS6/image54.png)
 
-( “ ![](https://files.catbox.moe/aad2og.gif)◞  ◟ )　　₊　　**mug**gs　or　**kit**t　　𓎟𓎟 　he hym star
+𝙉𝙤𝙬 𝙋𝙡𝙖𝙮𝙞𝙣𝙜:
 
-**whisper** to interact cus im usually offtab / afk　+　slow replies
+𝘓𝘢𝘯𝘢 𝘋𝘦𝘭 𝘙𝘦𝘺 - West coast 
 
-　　　　　　　　୨𓎟𓎟𓎟　![image](https://github.com/swagmaster25/-/assets/132309692/b9ae4789-26c3-401c-b580-b19c89b1b32a)　𓎟𓎟𓎟୧
+00:00 ━━━━ 03:49
 
-plssplsplssplsss **int** or **c + h** i luv sitting and taljking with ppl 
+  ㅤ◁ㅤ ❚❚ ㅤ▷ ㅤㅤ↻﻿       ♡ 🎸⋆⭒˚｡⋆🎸🏛
 
-　basic dni stuffs other then that i'll just hide you if ur a freak
+![](https://i.postimg.cc/KvBZLDpL/a580f1de.gif)
+
+Welcome to my **github** !
+
+Check the links to know more about ***ME !***
+
