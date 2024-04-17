@@ -1,4 +1,4 @@
-　　　![](https://i.postimg.cc/hjjwrKS6/image54.png)
+　　　![](https://i.postimg.cc/C5Rj2FRm/59bf563c.gif)
 
 𝙉𝙤𝙬 𝙋𝙡𝙖𝙮𝙞𝙣𝙜:
 
