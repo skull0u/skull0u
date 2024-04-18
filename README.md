@@ -19,9 +19,6 @@
 </p>
 
 <p align="center">
-hi
-
-<p align="center">
  <img width="747" height="53" src="http://www.glittertextonline.com/donez/z662064888551a.gif">
 </p>
 
