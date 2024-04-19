@@ -33,4 +33,5 @@
 <p align="center">
   <img width="382" height="12" src="https://i.postimg.cc/KvBZLDpL/a580f1de.gif">
 </p>
-
+   
+[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=312joizrsi24pyb5qwfwzqggxnby&cover_image=true&theme=novatorem&show_offline=false&background_color=ffffff&interchange=false&bar_color=69b0ce&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
