@@ -1,17 +1,33 @@
 <p align="center">
-     <img width="894" height="373" src="https://cdn.discordapp.com/attachments/817050496103219212/1254545342268178483/19_Sem_Titulo_20240623175421.png?ex=6679e1e5&is=66789065&hm=c70c35d6df09f805ac3980b6a2cc47e2d8e89ae0cb24511e2e332f6fad9dd74d&">
+     <img width="586" height="341" src="https://cdn.discordapp.com/attachments/817050496103219212/1236041714871959602/16_Sem_Titulo_20240503164423.png?ex=6692314d&is=6690dfcd&hm=e85358295358e161e87dc6a74a5d6ef381f9134579b32370f8507b5a82a973a9&">
 </p>
 
 <p align="center">
-𝐸xcept for us!
+𝒯hat's me!! ⮥
 </p>
 
 <p align="center">
-$${\color{purple}us! \space \color{red}us! \space \color{gray}us! \space \color{lightblue}us!}$$ 
+𝒞all me <img width="69" height="36" src="https://cdn.discordapp.com/attachments/817050496103219212/1261343020582703125/killer.png?ex=66929cba&is=66914b3a&hm=856f4cd2f5db55a8a010f330b78b4f19c5a138659aed658dff60b7855b653cbb&"> or <img width="69" height="36" src="https://cdn.discordapp.com/attachments/817050496103219212/1261343020804997220/olivier.png?ex=66929cba&is=66914b3a&hm=698decc23edef0181e7f583b389074184d6bd463704c9c9ace68b68e58f104db&"> ! <img width="30" height="30" src="https://cdn.discordapp.com/attachments/817050496103219212/1261342011169181777/59491234_Cfo.gif?ex=66929bca&is=66914a4a&hm=01db4cb4733fc6caa60a529fc753b3925fe8506151c265adb08272499875b01e&">
 </p>
 
 <p align="center">
-$${\color{Lightpink}/lyrics}$$
+$${\color{darkslategrey}´´Please \space don't \space ever \space worry,}$$
+</p>
+
+<p align="center">
+$${\color{darkslategrey}I \space know \space it's \space morbid}$$
+</p>
+
+<p align="center">
+$${\color{darkslategrey}But \space we \space all \space die \space one \space day.´´}$$
+</p>
+
+<p align="center">
+$${\color{burlywood}´´(I'm \space back \space from \space the \space dead.)´´}$$
+</p>
+
+<p align="center">
+$${\color{Gray}/lyrics}$$
 </p>
 
 <p align="center">
@@ -19,15 +35,15 @@ th𝘦𝘺 / 𝗶t ++ n𝗲𝗼s
 </p>
 
 <p align="center">
-  <img width="99" height="56" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/ecc4bc54-aa20-47d3-b080-4fd35a4a42e7/db4cmsm-d17dc006-cd25-4fb7-8090-e34e9b204975.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2VjYzRiYzU0LWFhMjAtNDdkMy1iMDgwLTRmZDM1YTRhNDJlN1wvZGI0Y21zbS1kMTdkYzAwNi1jZDI1LTRmYjctODA5MC1lMzRlOWIyMDQ5NzUuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.EnJu5Z5TqJBdfHPPcpZJOGPUC_1MHRjSfnClBwy41tY"> <img width="99" height="56" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/24ce2edd-5232-474d-89cd-9c02e7c3d9ea/db97vj9-01cbe111-4e40-4bf7-b944-d2c2cedbf726.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzI0Y2UyZWRkLTUyMzItNDc0ZC04OWNkLTljMDJlN2MzZDllYVwvZGI5N3ZqOS0wMWNiZTExMS00ZTQwLTRiZjctYjk0NC1kMmMyY2VkYmY3MjYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.-_V6xzaob9yAMPwb30YkJVeRazVrkXYamv-82hxtY5E"> <img width="99" height="56" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b978e16c-7d77-443b-8a22-6260c6fd5ecb/da3epbn-31e98c41-da0c-4b5b-a149-91b5b7158b51.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2I5NzhlMTZjLTdkNzctNDQzYi04YTIyLTYyNjBjNmZkNWVjYlwvZGEzZXBibi0zMWU5OGM0MS1kYTBjLTRiNWItYTE0OS05MWI1YjcxNThiNTEuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.bDCWCWAj9tRMAr0ozlVP6Fu_Gj79AX4_KL9xcC3Aztg">
+  <img width="99" height="56" src="https://y2k.neocities.org/stamps/i_love_anything_paranormal_by_ladykatrianna.gif"> <img width="99" height="56" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/1a9eb11d-e48a-471d-8dfd-d337b257b408/d9qgonb-cba49722-6b1e-43c4-b0e9-1ae11558da8d.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzFhOWViMTFkLWU0OGEtNDcxZC04ZGZkLWQzMzdiMjU3YjQwOFwvZDlxZ29uYi1jYmE0OTcyMi02YjFlLTQzYzQtYjBlOS0xYWUxMTU1OGRhOGQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.3WDN3Ue6pcxOrnbjGTEELp3m90ZjepGsqDySzXKZHW4"> <img width="99" height="56" src="https://cdn.discordapp.com/attachments/817050496103219212/1261338280448888934/58110632_fhb08ORZFRjfBZ1.png?ex=66929850&is=669146d0&hm=79b1e9834c9eb046cc2c95592e008183e67efecdae85a57c7c81376a77676dce&">
 </p>
 
 <p align="center">
-$${\color{Purple}☆FANDOMS \space I'M \space IN \space !☆}$$
+$${\color{Burlywood}☆FANDOMS \space I'M \space IN \space !☆}$$
 </p>
 
 <p align="center">
-Jujutsu Kaisen, 𝗕𝗟𝗨𝗘 𝗟𝗢𝗖𝗞!! ♡, Attack on Titan, Demon Slayer, Homestuck (DNI tho),
+Jujutsu Kaisen, 𝗕𝗟𝗨𝗘 𝗟𝗢𝗖𝗞!! ♡, Attack on Titan, Demon Slayer, Homestuck (Fandom DNI tho),
 </p>
 
 <p align="center">
