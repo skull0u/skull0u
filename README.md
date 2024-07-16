@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-𝒞all me <img width="69" height="36" src="https://cdn.discordapp.com/attachments/817050496103219212/1261343020582703125/killer.png?ex=66929cba&is=66914b3a&hm=856f4cd2f5db55a8a010f330b78b4f19c5a138659aed658dff60b7855b653cbb&"> or <img width="69" height="36" src="https://cdn.discordapp.com/attachments/817050496103219212/1261343020804997220/olivier.png?ex=66929cba&is=66914b3a&hm=698decc23edef0181e7f583b389074184d6bd463704c9c9ace68b68e58f104db&"> ! <img width="30" height="30" src="https://cdn.discordapp.com/attachments/817050496103219212/1261342011169181777/59491234_Cfo.gif?ex=66929bca&is=66914a4a&hm=01db4cb4733fc6caa60a529fc753b3925fe8506151c265adb08272499875b01e&">
+𝒞all me <img width="69" height="36" src="https://cdn.discordapp.com/attachments/817050496103219212/1261343020582703125/killer.png?ex=66929cba&is=66914b3a&hm=856f4cd2f5db55a8a010f330b78b4f19c5a138659aed658dff60b7855b653cbb&"> or <img width="69" height="36" src="https://cdn.discordapp.com/attachments/817050496103219212/1261343020804997220/olivier.png?ex=6697e2ba&is=6696913a&hm=55c3df778c3e17e51c5b21063e54ed9e89d9873873e537c76250c8c7ae02305e&"> ! <img width="30" height="30" src="https://cdn.discordapp.com/attachments/817050496103219212/1261342011169181777/59491234_Cfo.gif?ex=66929bca&is=66914a4a&hm=01db4cb4733fc6caa60a529fc753b3925fe8506151c265adb08272499875b01e&">
 </p>
 
 <p align="center">
